@@ -44,4 +44,4 @@
 </details>
 
 
-[twitter]: https://twitter.com/DidemKkkaraasl1
+[twitter]: https://twitter.com/Semiharslan1002
